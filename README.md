@@ -1,1 +1,2 @@
 Nathan Schuler
+schunath@oregonstate.edu
